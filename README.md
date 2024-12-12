@@ -1,6 +1,6 @@
 # MDSSCLOUD官网地址
 
-最新地址：[58mdss.com](https://1011.mdss01-88ubci03.top/#/register?code=R5vuq59u)
+最新地址：[58mdss.com](https://1212.mdss01-88ubci03.top/#/register?code=R5vuq59u)
 
 ## MDSSCLOUD机场介绍
 
